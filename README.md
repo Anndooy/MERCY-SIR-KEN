@@ -1,3 +1,7 @@
 # MERCY-SIR-KEN
 
-sadsadasdsadsadasdasd
+Leader:
+Carsten Guilaran
+Members:
+Ricarte Marc Nino P.
+Abayata Fritz Andrei S.
